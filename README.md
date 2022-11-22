@@ -1,5 +1,8 @@
 <a href="https://wakatime.com/@43a50c5b-fd67-42a2-8aeb-8bd80f41e38d"><img src="https://wakatime.com/badge/user/43a50c5b-fd67-42a2-8aeb-8bd80f41e38d.svg" alt="Total time coded since May 11 2022" /></a>
 
+https://itexam24.com/ndg-linux-essentials-2-0/ndg-linux-essentials-2-0-final-exam-chapter-9-18-answers/
+https://itexam24.com/ndg-linux-essentials-2-0/ndg-linux-essentials-2-0-final-comprehensive-exam-chapter-1-18-answers/
+
 <!--
 **Vodiik/vodiik** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
